@@ -2,7 +2,7 @@
 ## 😎 WELCOME TO THE KING OF HACKERS
 <p align="center"><a href="https://github.com/Bhaviktutorials"><img src="https://user-images.githubusercontent.com/64035221/92300150-3013ba00-ef76-11ea-9dd7-e886292c6d6c.jpg" alt="Bt">
   
-## <p align="center"> In Partnership With
+## <p align="center"> HACKING IS NOW BACK
   
 <p align="center"><a href="https://github.com/haraprasadhota"><img src="https://github.com/haraprasadhota/KING-HACKER/blob/master/hacker-4438137_1280.png" alt="Bt">
 </p>
